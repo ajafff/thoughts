@@ -62,6 +62,7 @@ Wenn du jetzt gar keine Lust mehr auf’s Schenken hast oder kein Geschenk mehr 
   - Kochen
   - Backen
   - Nähen
+  - Basteln
   - ...
 - Pflanzen
   - möglichst einheimisch
