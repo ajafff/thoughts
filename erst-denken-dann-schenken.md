@@ -1,3 +1,7 @@
+---
+layout: null
+---
+
 # Liebe(r) Schenkende(r),
 
 bald steht wieder ein Ereignis an, zu dem typischerweise Geschenke überreicht werden. Wir möchten mit diesem Schreiben darum bitten die üblichen Geschenketraditionen zu überdenken. Unser Ziel ist nicht, dir die Suche nach Geschenken zu erschweren oder bereits erhaltene Geschenke schlechtzureden. Stattdessen möchten wir Umwelt und Ressourcen schonen, indem wir bestimmte Produktgruppen gar nicht oder nur nach eingehender Recherche verwenden wollen. Bei uns sind manche Dinge einfach schon in ausreichender Menge vorhanden oder finden keine Verwendung. Und schließlich will niemand, dass seine Geschenke mit einem höflichen, aber nicht ernst gemeinten, “Danke” angenommen werden und danach im Keller verstauben und Platz rauben.
