@@ -50,9 +50,7 @@ Wenn du jetzt gar keine Lust mehr auf’s Schenken hast oder kein Geschenk mehr 
 - Tu dir selbst und der Umwelt einen gefallen und mähe weniger Rasen. Keiner mäht gern Rasen! Es ist anstrengend, öde und laut. Außerdem sieht das verbrannte Gras im Sommer eher nicht so schön aus. Lass es stehen und schaffe neuen Lebensraum für Vögel und Insekten, auch wenn du nicht alle davon magst.
 - Vermeide Nestlé, Coca Cola und andere Firmen, die Mensch und Natur ausbeuten. Außerdem sind die meisten ihrer Produkte sowieso ungesund.
 
----
-
-Tipps für die Geschenkesuche und -optimierung
+## Tipps für die Geschenkesuche und -optimierung
 
 - auch mal was Gebrauchtes schenken: es muss nicht neu, sondern funktional/zweckmäßig sein
 - möglichts umweltverträglich
