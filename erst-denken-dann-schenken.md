@@ -12,7 +12,7 @@ Zudem gibt es noch ein paar Anlässe und Gründe, bei denen du das Schenken bess
 - “Das hat mich beim Einkaufen so angelacht, dass ich es mitnehmen musste.”: Dieses Geschenk ist offensichtlich für dich selbst bestimmt. Behalte es und erfreue dich daran. Andernfalls solltest du dein Einkaufs- und Konsumverhalten überprüfen.
 - “Nur eine Kleinigkeit.”, “Hat ja nicht viel gekostet.”, “Macht damit was ihr wollt. Wenn ihr es nicht braucht, dann tut es halt weg.”: Solche Geschenke machen eher traurig, weil sich die Kosten und der entstehende Müll über die Jahre zu einer beachtlichen Menge ansammelt.
 - “Weil die anderen das auch bekommen haben.”: Jeder hat andere Bedürfnisse aufgrund von Hobbies, Verdienst und sonstigen Lebensumständen.
-- “Ich habe ein Geschenk bekommen, also muss ich möglichst im gleichen Wert zurückschenken.” :unamused:
+- “Ich habe ein Geschenk bekommen, also muss ich möglichst im gleichen Wert zurückschenken.” 😒
 
 ## Hier ist sie nun, die große Nicht-Schenke-Liste:
 
@@ -66,3 +66,7 @@ Wenn du jetzt gar keine Lust mehr auf’s Schenken hast oder kein Geschenk mehr 
 - selbsterzeugte vegetarische Fressalien
 - Bücher nach Absprache
 - Wissen
+
+---
+
+Klaus und Lena
